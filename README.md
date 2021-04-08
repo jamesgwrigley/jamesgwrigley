@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @jamesgwrigley
+- 📫 How to reach me contact@jameswrigley.co.uk
